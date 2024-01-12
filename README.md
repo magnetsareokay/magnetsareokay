@@ -1,6 +1,9 @@
 Wsg Slimezzzz my name is Renzo
-Founder of the Renzo Republic
-Creator of Renzobucks
+Titles include:
+- Founder of the Renzo Republic
+- Creator of Renzobucks
+
+Info about m3!
 
 - 😄 Pronouns: U/S/A
 - ⚡ Fun fact: I am proud of my Fruit Merge skills
