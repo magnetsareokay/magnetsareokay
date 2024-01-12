@@ -18,3 +18,13 @@ That's all i think.
 |
 |
 KJ typed that before I realized that. NOOOOOOOOO!!!!!!!!!!!! renzo was born to say hai!!! 
+
+
+
+
+
+
+
+- Not done yet 😈
+- ![download](https://github.com/magnetsareokay/magnetsareokay/assets/155477378/1936b4b0-4bf4-4d26-a731-bc81579fcacb)
+
